@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @emp7re77, known as Lou irl.
+- 👀 I’m interested in WinForms applications and APIs.
+- 🌱 I’m currently learning advanced API interaction
+- 💞️ I’m looking to collaborate on any projects!
+- 📫 Email me at emp7re77@yandex.ru
+- 😄 Pronouns: he/him
